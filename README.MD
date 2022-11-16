@@ -52,4 +52,3 @@ Eaton, Greenwood SC — Various Roles
 
 Education
 Piedmont Technical College, Greenwood SC — Associate’s of Health Science (RN) 2005-2008 Greenwood SC
-Lander University (online), Greenwood SC — Bachelor’s of Health Science (RN) 2010-2012 Greenwood SC
